@@ -1,0 +1,2 @@
+**Málaga** (/ˈmæləɡə/ is a municipality of Spain, capital of the Province of Málaga, in the autonomous community of Andalusia. With a population of 578,460 in 2020, it is the second-most populous city in Andalusia and the sixth most populous in the country. It lies in Southern Iberia on the Costa del Sol ("Coast of the Sun") of the Mediterranean, primarily in the left bank of the Guadalhorce. The urban core originally developed in the space between the Gibralfaro Hill and the Guadalmedina.
+
